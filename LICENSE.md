@@ -1,4 +1,4 @@
-# 
+# professional Adobe Premiere Pro for macOS LUT | version-history + proxy-editing offers the most advanced Adobe Premiere Pro for macOS lut, with version-history and proxy-editing.
 
 
 
